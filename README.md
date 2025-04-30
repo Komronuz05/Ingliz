@@ -1,2 +1,0 @@
-# Ingliz
-Tets
